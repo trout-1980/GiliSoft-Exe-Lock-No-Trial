@@ -1,0 +1,1 @@
+# GiliSoft-Exe-Lock-No-Trial
